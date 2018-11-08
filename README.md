@@ -37,3 +37,99 @@ but it is by no means a master of problem solving.
 
 9. If you don't study, walking 10,000 miles is just a postman.    
 如果不读书，行万里路也不过是个邮差。
+
+10. Victory belongs to who is the most persevering.   
+成功属于坚持不懈的人.
+
+11. Spend more time smiling than frowning and more time praising than criticizing.   
+多花时间微笑，少花时间蹙眉，多花时间表扬，少花时间批评。 
+
+12. Habits are at first cobwebs and at last cables.   
+习惯初如蛛丝，后如钢绳。
+
+13. There are three paces of time: the future is slow in coming; 
+the present is flying like an arrow; the past is always at a standstill.   
+时间的步伐有三种：未来姗姗来迟，现在像箭一般飞逝，过去永远静止不动。 
+
+14. Life is either a daring adventure or nothing at all.   
+生活要么大胆尝试，要么什么都不是。
+
+15. Roses given to others, but the fragrance is left in your hand.   
+赠人玫瑰手有余香。
+
+16. Attitude is everything.   
+态度决定一切。
+
+17. Lost time is never found again.   
+光阴一去不复返.
+
+18. Genius is one per cent inspiration, ninety-nine per cent perspiration.   
+天才是1%的天分加99%的努力。
+
+19. If there is no miserable struggle, there is no enormous progress.   
+没有痛苦的挣扎，就没有巨大的进步。 
+
+20. Nothing is impossible to a willing heart.   
+有志者事竟成.
+
+21. You will never win if you never begin.   
+不开始，难成功。
+
+22. Knowledge is power.   
+知识就是力量。
+
+23. "Don't be afraid of making mistakes, if you're not making mistakes, you're not learning."- Steve   
+不要害怕犯错，我们都是从错误中，学习、成长起来！
+
+24. Take the whole into consideration, but do the job bit by bit.   
+大处着眼，小处着手。
+
+25. One of the greatest pleasure in life is doing something 
+that people say you cannot do. So Challenge yourself.   
+人生的一大快事便是做了别人认为你做不来的事, 去挑战自己吧. 
+
+26. Unless you try to do something beyond what you have already mastered, 
+you will never grow.   
+只有去尝试做一些你不熟悉的事情你才能有所成长。
+
+27. As the bright moon shines over the sea, from far away, 
+you share this moment with me.   
+海上生明月，天涯共此时。 ​​
+
+28. An investment in knowledge pays the best interest.   
+在知识上的投资是回报率最高的投资。——本杰明·富兰克林
+
+29. The ocean takes hundreds of rivers so that it becomes vast and a man 
+accepts a variety of ideas so that he becomes great.   
+​海纳百川，有容纳大。
+
+30. If you're prepared to adapt and learn, you can transform.   
+如果你愿意改变和学习，你就能脱胎换骨。
+
+31. Friendship multiplies joys and divides griefs.   
+友谊可以增添欢乐，可以分担忧愁。 ​
+
+32. There is no absolute success in the world, only constant progress.   
+世界上的事没有绝对成功，只有不断的进步。
+
+33. The best way to achieve a goal is to devote 100% of your time and energy to it.   
+达到目标的最好办法就是投入自己百分百的时间和精力去完成它。
+
+34. The best preparation for tomorrow is doing your best today.   
+对明天做好的准备就是今天做到最好! 
+
+35. Everyone has his inherent ability which is easily concealed by habits, 
+blurred by time, and eroded by laziness.   
+每个人都有潜能，只是很容易被习惯所掩盖，被时间所迷离，被惰性所消磨。 
+
+36. Success means having the courage, the determination, 
+and the will to become the person you believe you were meant to be. – George Sheehan, Athlete.   
+成功意谓有勇气、决心及意志力，来成为你心目中的你。
+
+37. ​People who live the most fulfilling lives are the ones who are always rejoicing at what they have.   
+永远对所拥有感到欣喜的人，是生活最富足的人。  
+
+38. Keep calm when you succeed and keep cool when you fail. 
+While competition is inevitable, just let nature take its course.   
+得之泰然，失之淡然，争其必然，顺其自然。
+
