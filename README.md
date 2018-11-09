@@ -1,6 +1,6 @@
 # Everyday English
 
-- [Chapter 1](ee01.md)
+- Chapter 1 [001~100](ee01.md)
 
 ## w.微信订阅号
 
