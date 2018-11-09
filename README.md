@@ -2,15 +2,15 @@
 
 ## section 1
 
-1. A cup of water becomes cloudy due to a drop of sewage,
+1. **A cup of water becomes cloudy due to a drop of sewage,
 and a cup of sewage does not become clear due to 
-the presence of a drop of water.    
+the presence of a drop of water.**    
 一杯清水因滴入一滴污水而变浑浊，一杯污水却不会因为一滴清水的存在而变清澈。
 
-2. There are three things in this world that others can't take away: 
+2. **There are three things in this world that others can't take away: 
 one is to eat food in the stomach, 
 the other is the dream hidden in the heart, 
-and the third is the book that reads into the brain.   
+and the third is the book that reads into the brain.**   
 这世上有三样东西是别人抢不走的：一是吃进胃里的食物，二是藏在心中的梦想，三是读进大脑的书。
 
 3. Horses are prone to hoofs on soft land, 
