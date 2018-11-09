@@ -1,5 +1,7 @@
 # Everyday English
 
+## section 1
+
 1. A cup of water becomes cloudy due to a drop of sewage,
 and a cup of sewage does not become clear due to 
 the presence of a drop of water.    
@@ -41,6 +43,8 @@ but it is by no means a master of problem solving.
 10. Victory belongs to who is the most persevering.   
 成功属于坚持不懈的人.
 
+## section 2
+
 11. Spend more time smiling than frowning and more time praising than criticizing.   
 多花时间微笑，少花时间蹙眉，多花时间表扬，少花时间批评。 
 
@@ -71,6 +75,8 @@ the present is flying like an arrow; the past is always at a standstill.
 
 20. Nothing is impossible to a willing heart.   
 有志者事竟成.
+
+## section 3
 
 21. You will never win if you never begin.   
 不开始，难成功。
@@ -105,6 +111,8 @@ accepts a variety of ideas so that he becomes great.
 
 30. If you're prepared to adapt and learn, you can transform.   
 如果你愿意改变和学习，你就能脱胎换骨。
+
+## section 4
 
 31. Friendship multiplies joys and divides griefs.   
 友谊可以增添欢乐，可以分担忧愁。 ​
