@@ -143,8 +143,8 @@ and the will to become the person you believe you were meant to be. – George S
 While competition is inevitable, just let nature take its course.   
 得之泰然，失之淡然，争其必然，顺其自然。
 
-8. Aim high and look far, be alert to dangers even in times of calm.   
-登高望远，居安思危。
+8. Don't let someone who doesn't know your value tell you how much you're worth.   
+别让那些不懂珍惜你的人来衡量你的价值。 ​​​​
 
 9. Don't aim for success if you want it; just do what you love and believe in, 
 and it will come naturally.   
@@ -300,10 +300,7 @@ aim high, and have your feet firmly on the ground.
 3. It is better for a man to speak evil of me than to contend. It is better to be able to resist than to defend.   
 人之谤我也，与其能辩，不如能容。人之侮我也，与其能防，不如能化。
 
-4. Don't let someone who doesn't know your value tell you how much you're worth.   
-别让那些不懂珍惜你的人来衡量你的价值。 ​​​​
-
-5. A fall of seasonable snow gives promise of a fruitful year.   
+4. A fall of seasonable snow gives promise of a fruitful year.   
 瑞雪兆丰年.
 
 
